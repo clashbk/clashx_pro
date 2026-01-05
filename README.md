@@ -4,3 +4,7 @@
 ## ClashX Pro官网导航
 - [ClashX Pro使用教程](https://github.com/clashbk/clash/wiki/clashx-pro)
 
+机场推荐：【 [ORYMI（点击注册）](https://orymi.net/#/register?code=rDsEp8Hf)】
+免费观看netflix、disney+、primevideo、hbomax，
+九折优惠码：LxwSsaay
+
